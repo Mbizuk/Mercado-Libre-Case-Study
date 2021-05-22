@@ -23,7 +23,7 @@ E-Commerce can be considered a tool to modernize parts of Latin America both wit
 
 - The recent acquisitiom be Central Securities Corporation shows that corporate America feels there is room for groth and profit in the region.
 
-<img src="this pc/desktop/pictures/new-office">
+<img src="https://www.shutterstock.com/image-photo/may-03-2019-brazil-this-photo-1388171129">
 
  _Resources_
 
